@@ -1,5 +1,5 @@
 # Kinglessnew-
-📰 KINGLESS-NEWS – 12/01/2026 (C1)
+📰 KINGLESS-NEWS – 12/01/2026 (d1)1°.
 Edição Especial | Acontecimentos de Domingo
 
 DOMINGO DE CAOS
